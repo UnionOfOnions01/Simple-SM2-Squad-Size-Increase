@@ -1,0 +1,1 @@
+Hello, and thanks for installing this mod! I mod frequently for myself on Skyrim, Morrowind, and Fallout NV, but this is my first public project. So, I started with something simple--just a squad increase to be more lore accurate. Enjoy, and if you have any issues, hmu on Discord at _captaingoose_
